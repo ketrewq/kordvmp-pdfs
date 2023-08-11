@@ -1,2 +1,2 @@
 # kordvmp-pdfs
-dump for miscellaneous documents 
+dump for miscellaneous documents. No pirating included. 
